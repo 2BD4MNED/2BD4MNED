@@ -1,2 +1,4 @@
 
-![Alt Tag](https://cdn.discordapp.com/attachments/1213284632468918302/1387526620637560923/Tumblr_l_305923230253922.gif?ex=685daa5d&is=685c58dd&hm=cabe7af1dc718d3fef20486fcfdefaaf7b3d1569a955e4706dd39c71e8d37d38&=6833dacf&hm=68fda0daada131d59ad775fa37c67e45aa984b4cc5b7471ad91cf4507d41bbe3&)
+![Alt Tag](https://64.media.tumblr.com/9e0016d691c7ab675b4dc7c9b4ac68b2/44fc57363d9bd3e4-b4/s1280x1920/afeaa677490a02b0c2b966228b2da060fae762f4.pnj)
+![Alt Tag](https://64.media.tumblr.com/56fd5945858f7b4f3a86ece81767e765/44fc57363d9bd3e4-41/s640x960/e0dded6ab7b34d0f9b03606b209f65e1abbca741.gifv) 
+  SCOUT / DOMA / ANY FAVORITE CHARACTERS. He/Him ![Alt Tag](https://64.media.tumblr.com/9c219299da1c33ac7755e8767fdc3b47/680ef49d95e1b64f-69/s75x75_c1/4ef6565d17a52af362cd69ae8416592b0b7adbf6.gifv)

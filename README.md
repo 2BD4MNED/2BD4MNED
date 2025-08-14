@@ -14,3 +14,6 @@ madness combat, tf2, forsaken, bendy and the ink machine, deltarune, Scp, Jsaw, 
 I DONT HAVE A DNI CUZ IT'S BASIC BUT JUST DONT BE FRIENDS WITH SAMUEL ( a person who likes vampires and dr ) Cuz he is a ped and a horrible person 
 
 ![Alt Tag](https://64.media.tumblr.com/4cd9cb409c7904385793649ac179bb85/024d7b4e164001e2-ef/s2048x3072/6eff330470efa00575325688f379bcfca036bf84.pnj)
+
+
+IF YOU SEE THIS I WILL REMAKE THIS !

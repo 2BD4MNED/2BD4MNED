@@ -1,6 +1,6 @@
 
 ![Alt Tag](https://64.media.tumblr.com/e965da1b04f54b241306b3f4765fba60/024d7b4e164001e2-b1/s2048x3072/91eb800d1d68f093e4d2941a9746fbfc97e2ccb4.pnj)
-![Alt_Tag](https://cdn.discordapp.com/attachments/1034964683565846549/1405342112295420157/Untitled101_20250813200740.png?ex=689e7a55&is=689d28d5&hm=8ed789cf4cf902c24274bde43d9f5e910c548f1b94d99025887bcb9f2b4abd0f&) 
+![Alt_Tag](https://cdn.discordapp.com/attachments/1213284632468918302/1405777040854220840/Sans_titre_447_20250815005556.png?ex=68a00f64&is=689ebde4&hm=1272d2bfa2d403871b6333ec18d91c59f50f03c0839884e9e4990d1e6476ef8e&) 
 BLU SCOUT / DOMA 
 
 Might make sexual jokes when gets comfortable so please ask when you get uncomfortable ![Alt Tag](https://64.media.tumblr.com/a84772d1a624e2e54473a3d93a0d1546/024d7b4e164001e2-4b/s75x75_c1/2eec58188942877a9a7efb13188c3293b5bda687.gifv)

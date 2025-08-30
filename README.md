@@ -1,19 +1,17 @@
 
-![Alt Tag](https://64.media.tumblr.com/e965da1b04f54b241306b3f4765fba60/024d7b4e164001e2-b1/s2048x3072/91eb800d1d68f093e4d2941a9746fbfc97e2ccb4.pnj)
-![Alt_Tag](https://cdn.discordapp.com/attachments/1213284632468918302/1405777040854220840/Sans_titre_447_20250815005556.png?ex=68a00f64&is=689ebde4&hm=1272d2bfa2d403871b6333ec18d91c59f50f03c0839884e9e4990d1e6476ef8e&) 
-BLU SCOUT / DOMA 
+![Alt Tag](https://64.media.tumblr.com/02f6f36bb2ce5c642b404d218f8929dd/c1c90ffba8115f2a-47/s1280x1920/ec02fbca4d4a01069ef8d9d304c9490c54fbb30f.pnj)
+![Alt_Tag](https://64.media.tumblr.com/266ecc17e671029288ea47f6af28a507/6f54a68d64fe19a5-27/s640x960/916f2a73968114781a29f1c33652db878c375165.gifv)
+BRUTAL SNIPER / DOMA 
 
-Might make sexual jokes when gets comfortable so please ask when you get uncomfortable ![Alt Tag](https://64.media.tumblr.com/a84772d1a624e2e54473a3d93a0d1546/024d7b4e164001e2-4b/s75x75_c1/2eec58188942877a9a7efb13188c3293b5bda687.gifv)
+Might make sexual jokes when gets comfortable so please ask when you get uncomfortable ![Alt Tag](https://64.media.tumblr.com/2fd7c427d800d1e61f12ada0e04b4bb9/62a7d58920848be0-b4/s75x75_c1/ed7c354172b899c059cf6421c1dafc115d0ce2e6.gifv)
 
-![Alt Tag](https://64.media.tumblr.com/e965da1b04f54b241306b3f4765fba60/024d7b4e164001e2-b1/s2048x3072/91eb800d1d68f093e4d2941a9746fbfc97e2ccb4.pnj)
-![Alt Tag](https://64.media.tumblr.com/c7d842883d3e674aaca1eb1acbaadc26/024d7b4e164001e2-83/s100x200/fd9a6a2445a756f0ac594953226ff8809a42f511.gifv)
-madness combat, tf2, forsaken, bendy and the ink machine, deltarune, Scp, Jsaw, the thing 1982, die of death, pressure, little pootis and more i forgot 
-![Alt Tag](https://64.media.tumblr.com/aef1f99198cee9de6a0751d97a5d7944/2560c9d1d2d874bf-d0/s75x75_c1/180215c58720303fac2f24d477aeb63235d884a0.gifv)
+![Alt Tag](https://64.media.tumblr.com/02f6f36bb2ce5c642b404d218f8929dd/c1c90ffba8115f2a-47/s1280x1920/ec02fbca4d4a01069ef8d9d304c9490c54fbb30f.pnj)
+![Alt Tag](https://64.media.tumblr.com/034908b88476c34084743e6ceb2fdf90/699f4ab5cd61f30d-8d/s75x75_c1/14701b2ef3e023568a0418962ada5dc885d56edd.gifv)
+madness combat, tf2/ff2, Still wakes the deep, emesis blue, jigsaw, the thing 1982, phighting, l4d1/2, cry of fear, postal and many more that comes about horror n blood 
 
+BIG NOTE TO KNOW: my first language isn't English so I might act stupid and ask about what the word means / i sometimes struggle making the conversation still working so I might be quiet 
 
-I DONT HAVE A DNI CUZ IT'S BASIC BUT JUST DONT BE FRIENDS WITH SAMUEL ( a person who likes vampires and dr ) Cuz he is a ped and a horrible person 
-
-![Alt Tag](https://64.media.tumblr.com/4cd9cb409c7904385793649ac179bb85/024d7b4e164001e2-ef/s2048x3072/6eff330470efa00575325688f379bcfca036bf84.pnj)
+![Alt Tag](https://64.media.tumblr.com/c56d4c4eaaa2970bddb1a2a2307b8aa7/a81535ec280ff85e-03/s1280x1920/5a0c603ad1debf87d47df2167821ba9d13965fe7.pnj)
 
 
-IF YOU SEE THIS I WILL REMAKE THIS !
+BAI BAI THANKS FOR READY 

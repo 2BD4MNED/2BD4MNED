@@ -14,4 +14,4 @@ BIG NOTE TO KNOW: my first language isn't English so I might act stupid and ask 
 ![Alt Tag](https://64.media.tumblr.com/c56d4c4eaaa2970bddb1a2a2307b8aa7/a81535ec280ff85e-03/s1280x1920/5a0c603ad1debf87d47df2167821ba9d13965fe7.pnj)
 
 
-BAI BAI THANKS FOR READY 
+BAI BAI THANKS FOR READING ( I feel embarrassed saying it as ready )
